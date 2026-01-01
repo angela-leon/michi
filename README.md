@@ -16,4 +16,4 @@ https://angela-leon.github.io/michi/
 Work in progress — updated regularly as I develop new projects.
 
 ## Contact
-Email: yourname@email.com
+Email: angela.l121303@gmail.com
